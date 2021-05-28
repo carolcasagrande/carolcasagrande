@@ -31,6 +31,5 @@ Na minha transição de carreira, meu objetivo inicial era apenas ingressar na �
 [Meu currículo online](https://aboutmecarolinecasagrande.netlify.app/)
 
 ## Para acessar meu Linkedin 🚀
-[Meu Linkedin](https://www.linkedin.com/in/carolinecasagrande/)# Olá ! 😊
-
+[Meu Linkedin](https://www.linkedin.com/in/carolinecasagrande/)
 
